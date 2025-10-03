@@ -1,1 +1,0 @@
-# ajayptechsupport.github.io
